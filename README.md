@@ -1,0 +1,2 @@
+- Blatant Player, owns you at everything.
+- Professional shuvit player.
